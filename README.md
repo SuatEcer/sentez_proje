@@ -1,0 +1,1 @@
+# sentez_proje
